@@ -1,0 +1,2 @@
+# hearingsolutionsindia
+Hearing Solutions clinics are geared up with latest and top-notch facilities including diagnostic equipment, digital hearing aids, hearing accessories and solution for all types of hearing loss. We have a team of highly experienced audiologists and speech-language pathologists. We help not only adults but also infants and young children with customised hearing aids to wireless communication devices. 
